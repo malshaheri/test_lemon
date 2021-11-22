@@ -28,7 +28,7 @@ For the feather icing
    splash of yellow food colouring
 
 
-Heat oven to 180C/160C fan/ gas 4. Line a 20 x 20cm square baking tin with baking parchment.
+Heat oven to 200C/160C fan/ gas 4. Line a 20 x 20cm square baking tin with baking parchment.
 
 Using an electric whisk, beat the butter and sugar together until pale, light and fluffy. Add the eggs and mix again. Add the flour, baking powder, lemon zest, lemon curd and milk, and mix with a wooden spoon until all the ingredients are thoroughly combined. Pour the mixture into the prepared tin and bake for 25-30 mins or until a skewer comes out clean.
 
