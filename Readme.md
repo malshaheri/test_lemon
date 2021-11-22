@@ -10,8 +10,7 @@ it looks really delicious,
 
 ![Lemon Drizzle cake](./cake.jpg)
 
-
-For the cake 
+For the cake
    70g softened unsalted butter
    120g caster sugar
    2 medium eggs
